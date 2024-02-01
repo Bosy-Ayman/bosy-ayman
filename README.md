@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m DSAI Student at Zewail city of Science and technology 
+🔭 I’m a DSAI Student at Zewail City of Science and Technology 
 
 
 ## 🌐 Socials:
